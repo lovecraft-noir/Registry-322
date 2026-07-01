@@ -1,3 +1,4 @@
+##Intro
 In the beginning there are gods — commerce breeding indifference, law of constraints, patterns in survival, converging into systems that reappear across every age- shaping and binding the way of man in service to unseen old ones. 
 
 Registry‑322 are the recordings of fusion within the cosmic and the modern world — a place where fears evolve into today’s vocabulary of social systems, economic pressure, and quantum uncertainty.
