@@ -1,2 +1,4 @@
 # Registry-322
-In the beginning there are gods—commerce breeding indifference, salt staining the soul instead of the stone. These gods were keepers of this realm long before the conception of time itself. A law of constraints governs their dominion, where patterns in survival converge into systems, reappearing across every age, shaping and binding the way of man.
+In the beginning there are gods—commerce breeding indifference, law of constraints, patterns in survival, converging into systems that reappear across every age- shaping and binding the way of man.
+
+[![Registry Seal](./images/your-image-name.png)](https://your-video-link.com)
